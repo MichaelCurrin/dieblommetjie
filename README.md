@@ -10,4 +10,4 @@
 
 🔍 Looking For: A place where my backend skills can shine in hybrid/remote roles. I'm ready to dive into new challenges and sprinkle some Tarryn magic!
 
-🔗 Let's Connect: If you're into tech, innovation, or just want to chat about the latest in software engineering, [hit me up](www.linkedin.com/in/tarrynblom)!
+🔗 Let's Connect: If you're into tech, innovation, or just want to chat about the latest in software engineering, [hit me up](https://www.linkedin.com/in/tarrynblom/) on LinkedIn!
